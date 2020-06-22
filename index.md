@@ -14,3 +14,5 @@ Ich habe mal gesagt:
 
 > Lebe dein Leben und träume dein Traum
 > Irgendwann wirst du dein Leben träumen und dein Traum leben
+
+<img src="http://lh3.ggpht.com/-Ff7OXfsPCBo/Tiwl8ikA-SI/AAAAAAAAPPI/oSwSEv6zB8A/obama-arrogant_thumb%25255B7%25255D.jpg?imgmax=800"/>
