@@ -8,3 +8,4 @@ Mein Charakter ist großartig, schlau und attraktiv. Ich verstehe nicht so ganz,
 * Schlau
 * Genial
 * Lustig
+* Intelligent
