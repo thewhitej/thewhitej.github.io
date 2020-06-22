@@ -9,3 +9,8 @@ Mein Charakter ist großartig, schlau und attraktiv. Ich verstehe nicht so ganz,
 * Genial
 * Lustig
 * Intelligent
+
+Ich habe mal gesagt:
+
+> Lebe dein Leben und träume dein Traum
+> Irgendwann wirst du dein Leben träumen und dein Traum leben
