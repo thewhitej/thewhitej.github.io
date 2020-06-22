@@ -7,3 +7,4 @@ Mein Charakter ist großartig, schlau und attraktiv. Ich verstehe nicht so ganz,
 * Großartig
 * Schlau
 * Genial
+* Lustig
